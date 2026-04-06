@@ -12,6 +12,6 @@
 
  $${\color{purple} welcome \space \ to \space \ my \space \ github ! {}}$$
  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/8q20mx.gif" alt="image" width="60" />
+ㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/8q20mx.gif" alt="image" width="60" />
 
  $${\color{pink} wemmbu ! {}}$$  
