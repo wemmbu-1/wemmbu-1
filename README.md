@@ -12,6 +12,6 @@
 
  $${\color{purple} welcome \space \ to \space \ my \space \ github ! {}}$$
  
-ㅤㅤ![wemmbu](https://github.com/user-attachments/assets/41a582df-8d88-4fbc-8329-f511d8860a73)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/8q20mx.gif" alt="image" width="60" />
 
  $${\color{pink} wemmbu ! {}}$$  
