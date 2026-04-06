@@ -8,7 +8,6 @@
 
 
 
-･ ⟢ ⋮
 
  $${\color{purple} welcome \space \ to \space \ my \space \ github ! {}}$$
  
