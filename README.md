@@ -10,4 +10,6 @@
 
 ･ ⟢ ⋮
 
+ $${\color{purple} welcome \space \ to \space \ my \space \ github ! {}}$$
+
  $${\color{pink} wemmbu ! {}}$$
