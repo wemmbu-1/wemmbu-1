@@ -2,3 +2,12 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[roblox!](https://www.roblox.com/users/1919254040/profile) ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="right" src="https://files.catbox.moe/g31sld.png" alt="image" width="600" />
+
+
+
+
+
+
+･ ⟢ ⋮
+
+ $${\color{pink} wemmbu ! {}}$$
